@@ -1,7 +1,5 @@
 <p align="center">
-
 Hello!! I'm Vince ^_^
-
 </p>
 
 
