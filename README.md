@@ -8,23 +8,33 @@ i use the hide/block button A LOT,
 ![](https://komarev.com/ghpvc/?username=k9pawzzz&color=224422)
 
 
+
 <div align="center">
-<h1>peniss saaaa</h1>
-</div>
 
-<div style="display:flex;gap:30px;align-items:flex-start;">
-
-<div style="width:55%;">
-
-text hi
+# U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED.
 
 </div>
 
-<div style="width:45%;">
+<table>
+<tr>
 
-<img src="<img width="1200" height="1933" alt="image" src="https://github.com/user-attachments/assets/be0d5996-46ae-42c1-9a80-62a6f2905f63" />
-" width="420"/>
+<td width="55%" valign="top">
 
-</div>
+pemis
 
-</div>
+penis
+
+penis
+
+penis
+
+</td>
+
+<td width="45%" align="center">
+
+<img src="<img width="1200" height="1933" alt="image" src="https://github.com/user-attachments/assets/2212423d-c015-4a8d-9bc5-cd8b2a2e98e7" width="420">
+
+</td>
+
+</tr>
+</table>
