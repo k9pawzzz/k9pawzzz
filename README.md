@@ -1,14 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=k9pawzzz&color=224422)
-<div align="center">
 
-```python
-def center_code():
-    print![](https://komarev.com/ghpvc/?username=k9pawzzz&color=224422)
-```
-
-</div>
-
-
-
+<p align="center"><code>git commit -m "![](https://komarev.com/ghpvc/?username=k9pawzzz&color=224422)"</code></p>
 
 
