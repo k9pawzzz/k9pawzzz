@@ -15,9 +15,6 @@ i use the hide/block button A LOT,
 
 </div>
 
-<table>
-<tr>
-
 <td width="55%" valign="top">
 
 pemis
@@ -35,6 +32,3 @@ penis
 <img src="<img width="1200" height="1933" alt="image" src="https://github.com/user-attachments/assets/2212423d-c015-4a8d-9bc5-cd8b2a2e98e7" width="420">
 
 </td>
-
-</tr>
-</table>
