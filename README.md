@@ -1,5 +1,5 @@
 <p align="center">
-WASSUP ^_^
+𝐖𝐀𝐒𝐒𝐔𝐏 ^_^
 </p>
 
 <br>
@@ -8,7 +8,7 @@ WASSUP ^_^
 CHECK OUT MY STRAWPAGE, PRONOUNS PAGE, AND GUNS.LOL 4 MORE INFO 
 </p>
 <p align="center">
-i use the hide/block button A LOT
+𝘪 𝘶𝘴𝘦 𝘵𝘩𝘦 𝘩𝘪𝘥𝘦/𝘣𝘭𝘰𝘤𝘬 𝘣𝘶𝘵𝘵𝘰𝘯 𝘳𝘦𝘨𝘶𝘭𝘢𝘳𝘭𝘺 
 </p>
 
 <br>
