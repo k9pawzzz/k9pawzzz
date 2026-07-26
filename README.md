@@ -2,6 +2,7 @@
 WASSUP ^_^
 </p>
 
+<br><br>
 
 <p align="center">
 CHECK OUT MY STRAWPAGE, PRONOUNS PAGE, AND GUNS.LOL 4 MORE INFO 
