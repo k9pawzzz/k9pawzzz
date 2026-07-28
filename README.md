@@ -5,10 +5,10 @@
 <br>
 
 <p align="center">
-CHECK OUT MY STRAWPAGE, PRONOUNS PAGE, AND GUNS.LOL 4 MORE INFO 
+CHECK OUT MY STRAWPAGE, PRONOUNS PAGE, AND GUNS.LOL 4 MORE INFO !!!
 </p>
 <p align="center">
-𝘪 𝘶𝘴𝘦 𝘵𝘩𝘦 𝘩𝘪𝘥𝘦/𝘣𝘭𝘰𝘤𝘬 𝘣𝘶𝘵𝘵𝘰𝘯 𝘳𝘦𝘨𝘶𝘭𝘢𝘳𝘭𝘺 
+𝘪 𝘶𝘴𝘦 𝘵𝘩𝘦 𝘩𝘪𝘥𝘦/𝘣𝘭𝘰𝘤𝘬 𝘣𝘶𝘵𝘵𝘰𝘯 A LOT. do not copy/inspo my ponies. 
 </p>
 
 <br>
