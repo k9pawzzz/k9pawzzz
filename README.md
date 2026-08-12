@@ -19,7 +19,7 @@ byi , im a social battery hi
 (¬_¬") usually with THESE FREAKS!!! SILVER, CIEL, ATTICUS, AND ECO <3
 </p>
 <p align="center">
-< SILVER, CIEL, ATTICUS, AND ECO 3
+ < SILVER, CIEL, ATTICUS, AND ECO 𝟑
 </p>
   
 <br>
