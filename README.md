@@ -45,6 +45,13 @@ usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
 <p align="center">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5090.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5089.avif">
-  <img src=https://user23078.na.imgto.link/public/20260812/img-5082.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5082.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5088.avif">
+</p>
+
+<p align="center">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5080.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5081.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5079.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5078.avif">
 </p>
