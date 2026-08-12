@@ -12,6 +12,9 @@
   <img src="https://user23078.na.imgto.link/public/20260812/img-5076.avif" width="300">
 </p>
 
+<p align="center">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5076.avif" width="300">
+</p>
 
 <p align="center">
 ouuu shi
