@@ -2,8 +2,8 @@
 ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;BABY BANG BANG!!&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;⊹
 </p>
 
-<p align="center">
-BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬") holy shit im unc at this bro everyone stop looking 
+p align="center">
+byi , im a SUPER TALKATIVE PERSON i just have a shit social battery; oftentimes i go nonverbal because i genuinely cannot process creating words. most often times im offtab──drawing, writing, gaming──whisper me 2 get my attention.
 </p>
 
 <br>
@@ -12,9 +12,6 @@ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬
   <img src="https://user23078.na.imgto.link/public/20260812/img-5076.avif" width="300">
 </p>
 
-<p align="center">
-byi , im a social battery hi
-</p>
 <p align="center">
 ૮₍ ´ ꒳ `₎ა&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;usually with THESE FREAKS!!!
 </p>
