@@ -13,8 +13,7 @@ CHECK OUT MY STRAWPAGE 4 MORE INFO , FEEL FREE TO SIGN MY ATA !!!
 
 <br>
 
-<p align="center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xgur3lzrvbzfiowz3scr56dgnu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b3a99b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xgur3lzrvbzfiowz3scr56dgnu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b3a99b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <p align="center">
 
