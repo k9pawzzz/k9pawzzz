@@ -46,8 +46,7 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://user23078.na.imgto.link/public/20260812/img-5093.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
-  <img src="https://external-media.spacehey.net/media/sk0JSZcHY2c3p2xipstjsDn5pTw3SKaLjvCrAzMhlfTA=/https://i.ibb.co/rtVdX1w/IMG-8474.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f4e9f8fb-2f1c-4a64-bf89-830304cf10d1"/>
-">
+  <img src="https://external-media.spacehey.net/media/sk0JSZcHY2c3p2xipstjsDn5pTw3SKaLjvCrAzMhlfTA=/https://i.ibb.co/rtVdX1w/IMG-8474.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f4e9f8fb-2f1c-4a64-bf89-830304cf10d1">
 </p>
 
 <p align="center">
