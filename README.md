@@ -46,15 +46,20 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://user23078.na.imgto.link/public/20260812/img-5093.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
+  <img src="https://external-media.spacehey.net/media/sk0JSZcHY2c3p2xipstjsDn5pTw3SKaLjvCrAzMhlfTA=/https://i.ibb.co/rtVdX1w/IMG-8474.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f4e9f8fb-2f1c-4a64-bf89-830304cf10d1" />
+">
 </p>
 
 <p align="center">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5090.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5089.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5082.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5088.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
+  <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-6061502df3c81243.gif<img width="101" height="61" alt="image" src="https://github.com/user-attachments/assets/4740f4a9-d314-434a-bc0f-ea6964a08512" />
+">
+  <img src="https://external-media.spacehey.net/media/sOXd8I5JBK6Ic_ps5X7l58J7TtyFlnygLZGAxO2ymkZ0=/https://img1.picmix.com/output/stamp/thumb/2/6/5/8/2308562_f9ce6.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f896be14-1a32-4eff-9cd9-e685e8420e39" />
+">
+  <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-637bddea46b32914.gif<img width="99" height="64" alt="image" src="https://github.com/user-attachments/assets/37ba1d2c-24ba-443e-b919-303104499f79" />
+">
+  <img src="https://i.ibb.co/XFPwQyq/d96ojux-fdcb2eb3-65a9-4de8-b5b5-58d3026a3c2f.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/83a47b59-e733-490b-920e-30998d527cc6" />
+">
+  <img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_66375dbdd89e88baed36000561f76074_a6d6e5d3_100.webp">
   <img src="https://media.tenor.com/8SsTmkEVG2YAAAAi/stamp-omori.gif">
 </p>
 
