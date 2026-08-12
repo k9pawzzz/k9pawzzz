@@ -1,5 +1,5 @@
 <p align="center">
-𝐖𝐀𝐒𝐒𝐔𝐏 ^_^
+𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty 
 </p>
 
 <br>
