@@ -37,14 +37,14 @@ usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
 
 <p align="center">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5094.avif">
-  <img src="stamps/stamp2.png">
-  <img src="stamps/stamp3.png">
-  <img src="stamps/stamp4.png">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5092.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5093.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
 </p>
 
 <p align="center">
-  <img src="stamps/stamp5.png">
-  <img src="stamps/stamp6.png">
-  <img src="stamps/stamp7.png">
-  <img src="stamps/stamp8.png">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5090.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5089.avif">
+  <img src=https://user23078.na.imgto.link/public/20260812/img-5082.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5088.avif">
 </p>
