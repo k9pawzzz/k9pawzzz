@@ -1,5 +1,5 @@
 <p align="center">
-ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;BABY BANG BANG!! ⊹
+ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;BABY BANG BANG!!&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;⊹
 </p>
 
 <p align="center">
