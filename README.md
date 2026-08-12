@@ -58,7 +58,7 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://user23078.na.imgto.link/public/20260812/img-5080.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5081.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5079.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5078.avif">
+  <img src="https://y2k.neocities.org/stamps/tumblr_inline_pedksjWYF31vlugze_500.gif">
 </p>
 
 
