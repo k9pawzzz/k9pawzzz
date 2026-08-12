@@ -50,10 +50,10 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
 </p>
 
 <p align="center">
-  <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-6061502df3c81243.gif<img width="101"height="61"alt="image"src="https://github.com/user-attachments/assets/4740f4a9-d314-434a-bc0f-ea6964a08512">
-  <img src="https://external-media.spacehey.net/media/sOXd8I5JBK6Ic_ps5X7l58J7TtyFlnygLZGAxO2ymkZ0=/https://img1.picmix.com/output/stamp/thumb/2/6/5/8/2308562_f9ce6.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f896be14-1a32-4eff-9cd9-e685e8420e39">
-  <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-637bddea46b32914.gif<img width="99" height="64" alt="image" src="https://github.com/user-attachments/assets/37ba1d2c-24ba-443e-b919-303104499f79">
-  <img src="https://i.ibb.co/XFPwQyq/d96ojux-fdcb2eb3-65a9-4de8-b5b5-58d3026a3c2f.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/83a47b59-e733-490b-920e-30998d527cc6">
+  <img src="">
+  <img src="">
+  <img src="">
+  <img src="">
   <img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_66375dbdd89e88baed36000561f76074_a6d6e5d3_100.webp">
   <img src="https://media.tenor.com/8SsTmkEVG2YAAAAi/stamp-omori.gif">
 </p>
@@ -64,7 +64,7 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo2_100.png">
   <img src="https://y2k.neocities.org/stamps/tumblr_inline_pedksjWYF31vlugze_500.gif">
   <img src="https://64.media.tumblr.com/7fb014b4764cb15476212d3168e27247/479a263c7cd208ca-22/s100x200/d2845f8a3cd943296cc02ea44b7c69ab73ca3f9c.jpg">
-  <img src="https://64.media.tumblr.com/f476ee860246f62d20c00ab70bed7a31/0d610d849dbc691b-ce/s100x200/36c0002f60698fe8518b2afc50968babcd3455de.pnj<img width="99">
+  <img src="https://64.media.tumblr.com/f476ee860246f62d20c00ab70bed7a31/0d610d849dbc691b-ce/s100x200/36c0002f60698fe8518b2afc50968babcd3455de.pnj">
 </p>
 
 
