@@ -45,7 +45,7 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://external-media.spacehey.net/media/seoRH9KXWvdJq2ejomli1If0ubODq4Q25_1GuZxLQP_8=/https://i.ibb.co/z46jj8s/jay-fan-stamp-by-animal-nitrate-d2w1ii4.png">
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8373c38a-2803-440a-be49-b907f2fc9d43/d2mke21-dcdd7f83-b678-4d54-b7a3-ed1ce323d682.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi84MzczYzM4YS0yODAzLTQ0MGEtYmU0OS1iOTA3ZjJmYzlkNDMvZDJta2UyMS1kY2RkN2Y4My1iNjc4LTRkNTQtYjdhMy1lZDFjZTMyM2Q2ODIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.zDWOrQ8stYChy5VubRXYhnkwaSTQvePgatbfw-elL00">
   <img src="https://external-media.spacehey.net/media/sdrAA_Hwhv8AcWudWTydciCBCYZR7PwFvutU_xFEN6_s=/https://file.garden/ZeimZ8ipelQtyM8F/stamps/totheark1.png">
-  <img src="">
+  <img src="https://petrapixel.neocities.org/assets/img/blinkies/stamps/hannibal.png">
   <img src="https://external-media.spacehey.net/media/sSdKzx3RYKiV-CmkE_kpusUhtTT-p3G_xXYyjr4uyH_M=/https://file.garden/ZeimZ8ipelQtyM8F/stamps/totheark2.png">
 </p>
 
@@ -53,7 +53,7 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://64.media.tumblr.com/513e1c75560860490dcb765526dc5b6f/691c190b6a5f1502-94/s100x200/f3135fdca8dbbd007f17e5226b8845e29718d5ae.gifv">
   <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-637bddea46b32914.gif">
   <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-6061502df3c81243.gif">
-  <img src="">
+  <img src="https://external-media.spacehey.net/media/skOc5WQ48a8odWkJEqrZ8AKhCtw9w8iMSJuFyhqTaODo=/https://64.media.tumblr.com/94e2fe52f92258841dc04cd0efba743e/2ee70955c35e5e3e-d6/s100x200/f40af5bb815a6138475767f1fe9fb7793a1c204f.gifv">
   <img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_66375dbdd89e88baed36000561f76074_a6d6e5d3_100.webp">
   <img src="https://media.tenor.com/8SsTmkEVG2YAAAAi/stamp-omori.gif">
 </p>
