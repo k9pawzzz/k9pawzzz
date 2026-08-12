@@ -36,8 +36,7 @@ usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
 
 
 <p align="center">
-  <img src="<img width="95" height="58" alt="image" src="https://github.com/user-attachments/assets/6b8a4ef9-0f15-4b3e-9a09-4ed026ce193c" />
-">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5094.avif">
   <img src="stamps/stamp2.png">
   <img src="stamps/stamp3.png">
   <img src="stamps/stamp4.png">
