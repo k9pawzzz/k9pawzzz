@@ -56,8 +56,7 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
 ">
   <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-637bddea46b32914.gif<img width="99" height="64" alt="image" src="https://github.com/user-attachments/assets/37ba1d2c-24ba-443e-b919-303104499f79"/>
 ">
-  <img src="https://i.ibb.co/XFPwQyq/d96ojux-fdcb2eb3-65a9-4de8-b5b5-58d3026a3c2f.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/83a47b59-e733-490b-920e-30998d527cc6"/>
-">
+  <img src="https://i.ibb.co/XFPwQyq/d96ojux-fdcb2eb3-65a9-4de8-b5b5-58d3026a3c2f.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/83a47b59-e733-490b-920e-30998d527cc6">
   <img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_66375dbdd89e88baed36000561f76074_a6d6e5d3_100.webp">
   <img src="https://media.tenor.com/8SsTmkEVG2YAAAAi/stamp-omori.gif">
 </p>
