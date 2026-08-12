@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬")
+𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬") holy shit im unc at this bro everyone stop looking 
 </p>
 
 <br>
@@ -32,4 +32,20 @@ usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
 <p align="center">
 
   <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=224422" alt="Profile views">
+</p>
+
+
+<p align="center">
+  <img src="<img width="95" height="58" alt="image" src="https://github.com/user-attachments/assets/6b8a4ef9-0f15-4b3e-9a09-4ed026ce193c" />
+">
+  <img src="stamps/stamp2.png">
+  <img src="stamps/stamp3.png">
+  <img src="stamps/stamp4.png">
+</p>
+
+<p align="center">
+  <img src="stamps/stamp5.png">
+  <img src="stamps/stamp6.png">
+  <img src="stamps/stamp7.png">
+  <img src="stamps/stamp8.png">
 </p>
