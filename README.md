@@ -57,5 +57,5 @@ byi , im a SUPER TALKATIVE PERSON i just have a shit social battery; oftentimes 
 
 <p align="center">
 
-  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=224422" alt="Profile views">
+  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=ffffff" alt="Profile views">
 </p>
