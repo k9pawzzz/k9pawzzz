@@ -4,6 +4,8 @@
 
 <br>
 
+<br>
+
 <p align="center">
 byi , im a SUPER TALKATIVE PERSON i just have a shit social battery; oftentimes i go nonverbal because i genuinely cannot process creating words. most often times im offtab──drawing, writing, gaming──whisper me 2 get my attention.
 </p>
