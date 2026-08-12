@@ -5,9 +5,8 @@
 <br>
 
 <p align="center">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5072-1.avif">
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5074.avif">
 </p>
-
 
 <p align="center">
 CHECK OUT MY STRAWPAGE 4 MORE INFO , FEEL FREE TO SIGN MY ATA !!!
