@@ -3,7 +3,7 @@
 </p>
 
 <br>
-
+<br>
 <br>
 
 <p align="center">
@@ -16,6 +16,7 @@ oftentimes i go nonverbal because i genuinely cannot process creating words.
 im usually offtab──drawing, writing, gaming──whisper me 2 get my attention.
 </p>
 
+<br>
 <br>
 
 <p align="center">
