@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬") holy shit im unc at this bro everyone stop looking 
+𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬") holy shit im unc at this bro everyone stop looking  "ᡕᠵデᡁ᠊╾━  BABY BANG BANG!! ⊹"
 </p>
 
 <br>
@@ -13,10 +13,10 @@
 </p>
 
 <p align="center">
-ouuu shi
+byi , im a social battery hi
 </p>
 <p align="center">
-usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
+(¬_¬") usually with THESE FREAKS!!! SILVER, CIEL, ATTICUS, AND ECO <3
 </p>
 
 <br>
@@ -26,12 +26,6 @@ usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xgur3lzrvbzfiowz3scr56dgnu&cover_image=true&theme=natemoo-re&show_offline=true&background_color=c2c2c2&interchange=false&profanity=false&hide_remaster=false&bar_color=b3a99b&bar_color_cover=false"/>
   </a>
-</p>
-
-
-<p align="center">
-
-  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=224422" alt="Profile views">
 </p>
 
 
@@ -54,4 +48,10 @@ usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
   <img src="https://user23078.na.imgto.link/public/20260812/img-5081.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5079.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5078.avif">
+</p>
+
+
+<p align="center">
+
+  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=224422" alt="Profile views">
 </p>
