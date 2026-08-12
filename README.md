@@ -1,12 +1,12 @@
 <p align="center">
-𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty 
+  <img src="https://user23078.na.imgto.link/public/20260812/img-5074.avif">
+</p>
+
+<p align="center">
+𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬")
 </p>
 
 <br>
-
-<p align="center">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5074.avif">
-</p>
 
 <p align="center">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5075.avif" width="300">
@@ -14,7 +14,7 @@
 
 
 <p align="center">
-CHECK OUT MY STRAWPAGE 4 MORE INFO , FEEL FREE TO SIGN MY ATA !!!
+ouuu shi
 </p>
 <p align="center">
 usually with my friends!!! shoutout silver, ciel, eco, and atticus <3
