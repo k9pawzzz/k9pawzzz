@@ -16,10 +16,10 @@ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬
 byi , im a social battery hi
 </p>
 <p align="center">
-(¬_¬") usually with THESE FREAKS!!! SILVER, CIEL, ATTICUS, AND ECO <3
+(¬_¬") usually with THESE FREAKS!!!
 </p>
 <p align="center">
- < SILVER, CIEL, ATTICUS, AND ECO 𝟑
+⤷ SILVER, CIEL, ATTICUS, AND ECO 
 </p>
   
 <br>
