@@ -20,7 +20,7 @@ byi , im a SUPER TALKATIVE PERSON i just have a shit social battery; oftentimes 
 ૮₍ ´ ꒳ `₎ა&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;usually with THESE FREAKS!!!
 </p>
 <p align="center">
-⤷&nbsp;&nbsp;SILVER, CIEL, ATTICUS, AND ECO 
+⤷&nbsp;&nbsp;ˢᴵᴸⱽᴱᴿ, ᶜᴵᴱᴸ, ᴬᵀᵀᴵᶜᵁˢ, ᴬᴺᴰ ᴱᶜᴼ 
 </p>
   
 <br>
