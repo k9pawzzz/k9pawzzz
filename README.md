@@ -13,10 +13,15 @@ CHECK OUT MY STRAWPAGE 4 MORE INFO , FEEL FREE TO SIGN MY ATA !!!
 
 <br>
 
-<div align="center">
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xgur3lzrvbzfiowz3scr56dgnu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b3a99b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-</div>
+<p align="center">
 
+  <a href="https://github.com/kittinan/spotify-github-profile">
+
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xgur3lzrvbzfiowz3scr56dgnu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=b3a99b&bar_color_cover=false">
+
+  </a>
+
+</p>
 <p align="center">
 
   <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=224422" alt="Profile views">
