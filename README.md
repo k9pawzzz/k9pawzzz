@@ -1,9 +1,9 @@
 <p align="center">
-ᡕᠵデᡁ᠊╾━  BABY BANG BANG!! ⊹
+ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;BABY BANG BANG!! ⊹
 </p>
 
 <p align="center">
-𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬") holy shit im unc at this bro everyone stop looking  "ᡕᠵデᡁ᠊╾━  BABY BANG BANG!! ⊹"
+𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬") holy shit im unc at this bro everyone stop looking 
 </p>
 
 <br>
