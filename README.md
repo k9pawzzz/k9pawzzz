@@ -1,5 +1,5 @@
 <p align="center">
-ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝐁𝐀𝐁𝐘 𝐁𝐀𝐍𝐆 𝐁𝐀𝐍𝐆!!&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;⊹
+ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝐁𝐀𝐁𝐘 𝐁𝐀𝐍𝐆 𝐁𝐀𝐍𝐆!!&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;⊹ ok im unc. i cwnt fucking code,rediong ts
 </p>
 
 <br>
