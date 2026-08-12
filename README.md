@@ -64,7 +64,8 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo2_100.png">
   <img src="https://y2k.neocities.org/stamps/tumblr_inline_pedksjWYF31vlugze_500.gif">
   <img src="https://64.media.tumblr.com/7fb014b4764cb15476212d3168e27247/479a263c7cd208ca-22/s100x200/d2845f8a3cd943296cc02ea44b7c69ab73ca3f9c.jpg">
-  <img src="https://64.media.tumblr.com/e5e470901d9c8af7259215b0183cb020/479a263c7cd208ca-1e/s100x200/0dd9f5d4a74096a82f1dd6c11e2748bf685c2ea7.pnj">
+  <img src="https://64.media.tumblr.com/f476ee860246f62d20c00ab70bed7a31/0d610d849dbc691b-ce/s100x200/36c0002f60698fe8518b2afc50968babcd3455de.pnj<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/254a381a-19e0-432f-a49c-8037579b13e1" />
+">
 </p>
 
 
