@@ -1,5 +1,5 @@
 <p align="center">
-ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝐁𝐀𝐁𝐘 𝐁𝐀𝐍𝐆 𝐁𝐀𝐍𝐆!!&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;⊹ ok im unc. i cwnt fucking code,rediong ts
+ᡕᠵデᡁ᠊╾━&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝐁𝐀𝐁𝐘 𝐁𝐀𝐍𝐆 𝐁𝐀𝐍𝐆!!&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;⊹
 </p>
 
 <br>
@@ -7,13 +7,13 @@
 <br>
 
 <p align="center">
-byi , im a SUPER TALKATIVE PERSON i just have a shit social battery;
+byi , im a 𝐒𝐔𝐏𝐄𝐑 𝐓𝐀𝐋𝐊𝐀𝐓𝐈𝐕𝐄 𝐏𝐄𝐑𝐒𝐎𝐍 i just have a shit social battery;
 </p>
 <p align="center">
 oftentimes i go nonverbal because i genuinely cannot process creating words. 
 </p>
 <p align="center">
-im usually offtab──drawing, writing, gaming──whisper me 2 get my attention.
+𝘪𝘮 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣──𝘥𝘳𝘢𝘸𝘪𝘯𝘨, 𝘸𝘳𝘪𝘵𝘪𝘯𝘨, 𝘨𝘢𝘮𝘪𝘯𝘨──𝘸𝘩𝘪𝘴𝘱𝘦𝘳 𝘮𝘦 2 𝘨𝘦𝘵 𝘮𝘺 𝘢𝘵𝘵𝘦𝘯𝘵𝘪𝘰𝘯.
 </p>
 
 <br>
