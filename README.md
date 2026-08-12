@@ -3,10 +3,6 @@
 </p>
 
 <p align="center">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5074.avif">
-</p>
-
-<p align="center">
 𝐖𝐀𝐒𝐒𝐔𝐏 ^_^ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬_¬") holy shit im unc at this bro everyone stop looking  "ᡕᠵデᡁ᠊╾━  BABY BANG BANG!! ⊹"
 </p>
 
