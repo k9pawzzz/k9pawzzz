@@ -43,9 +43,9 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
 <p align="center">
   <img src="https://external-media.spacehey.net/media/sekBI_v9hrt2tLCW6mqGf-z3VUIVsNhe2uDKzIU5R0q8=/https://i.ibb.co/MMmTbVx/d2w1ilt-6763e5c7-8b91-48a6-8026-76dfa8a41934.png">
   <img src="https://external-media.spacehey.net/media/seoRH9KXWvdJq2ejomli1If0ubODq4Q25_1GuZxLQP_8=/https://i.ibb.co/z46jj8s/jay-fan-stamp-by-animal-nitrate-d2w1ii4.png">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5093.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8373c38a-2803-440a-be49-b907f2fc9d43/d2mke21-dcdd7f83-b678-4d54-b7a3-ed1ce323d682.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi84MzczYzM4YS0yODAzLTQ0MGEtYmU0OS1iOTA3ZjJmYzlkNDMvZDJta2UyMS1kY2RkN2Y4My1iNjc4LTRkNTQtYjdhMy1lZDFjZTMyM2Q2ODIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.zDWOrQ8stYChy5VubRXYhnkwaSTQvePgatbfw-elL00">
+  <img src="">
+  <img src="">
   <img src="https://external-media.spacehey.net/media/sC3dn3yqt-CJ1NKXcVpqr8f8KXoew6oGDP1xgt9WpQT0=/https://64.media.tumblr.com/138b31a9ce3659b9f58315e84dde61cd/2689591b2537b9f6-7b/s100x200/1d3618a68ca6432c039d8298b36916d55bba2804.pnj">
 </p>
 
