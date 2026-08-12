@@ -16,7 +16,7 @@ BRO everyone stip im making my readme pretty ᡕᠵデᡁ᠊╾━  𖦏 ⊹ (¬
 byi , im a social battery hi
 </p>
 <p align="center">
-(¬_¬")&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;usually with THESE FREAKS!!!
+૮₍ ´ ꒳ `₎ა&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;usually with THESE FREAKS!!!
 </p>
 <p align="center">
 ⤷&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SILVER, CIEL, ATTICUS, AND ECO 
