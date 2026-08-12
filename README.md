@@ -19,7 +19,7 @@ byi , im a social battery hi
 ૮₍ ´ ꒳ `₎ა&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;usually with THESE FREAKS!!!
 </p>
 <p align="center">
-⤷&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SILVER, CIEL, ATTICUS, AND ECO 
+⤷&nbsp;&nbsp;&nbsp;SILVER, CIEL, ATTICUS, AND ECO 
 </p>
   
 <br>
