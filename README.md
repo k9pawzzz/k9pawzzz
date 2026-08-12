@@ -49,14 +49,16 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
   <img src="https://external-media.spacehey.net/media/sSdKzx3RYKiV-CmkE_kpusUhtTT-p3G_xXYyjr4uyH_M=/https://file.garden/ZeimZ8ipelQtyM8F/stamps/totheark2.png">
 </p>
 
+
 <p align="center">
-  <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-637bddea46b32914.gif">
+  <img src="https://media.tenor.com/8SsTmkEVG2YAAAAi/stamp-omori.gif">
   <img src="https://64.media.tumblr.com/513e1c75560860490dcb765526dc5b6f/691c190b6a5f1502-94/s100x200/f3135fdca8dbbd007f17e5226b8845e29718d5ae.gifv">
   <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-6061502df3c81243.gif">
   <img src="https://external-media.spacehey.net/media/skOc5WQ48a8odWkJEqrZ8AKhCtw9w8iMSJuFyhqTaODo=/https://64.media.tumblr.com/94e2fe52f92258841dc04cd0efba743e/2ee70955c35e5e3e-d6/s100x200/f40af5bb815a6138475767f1fe9fb7793a1c204f.gifv">
   <img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_66375dbdd89e88baed36000561f76074_a6d6e5d3_100.webp">
-  <img src="https://media.tenor.com/8SsTmkEVG2YAAAAi/stamp-omori.gif">
+  <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-6061502df3c81243.gif">
 </p>
+
 
 <p align="center">
   <img src="https://64.media.tumblr.com/09659eead0cbf767f523b089a00a6625/593fcf905b8c6c14-27/s100x200/f33119d423cb817c1af585f471bc77c84bcea5cb.jpg">
