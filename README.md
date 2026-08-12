@@ -41,12 +41,12 @@ im usually offtab──drawing, writing, gaming──whisper me 2 get my attenti
 
 
 <p align="center">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5094.avif">
-  <img src="https://user23078.na.imgto.link/public/20260812/img-5092.avif">
+  <img src="https://external-media.spacehey.net/media/sekBI_v9hrt2tLCW6mqGf-z3VUIVsNhe2uDKzIU5R0q8=/https://i.ibb.co/MMmTbVx/d2w1ilt-6763e5c7-8b91-48a6-8026-76dfa8a41934.png">
+  <img src="https://external-media.spacehey.net/media/seoRH9KXWvdJq2ejomli1If0ubODq4Q25_1GuZxLQP_8=/https://i.ibb.co/z46jj8s/jay-fan-stamp-by-animal-nitrate-d2w1ii4.png">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5093.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
   <img src="https://user23078.na.imgto.link/public/20260812/img-5091.avif">
-  <img src="https://external-media.spacehey.net/media/sk0JSZcHY2c3p2xipstjsDn5pTw3SKaLjvCrAzMhlfTA=/https://i.ibb.co/rtVdX1w/IMG-8474.gif<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f4e9f8fb-2f1c-4a64-bf89-830304cf10d1">
+  <img src="https://external-media.spacehey.net/media/sC3dn3yqt-CJ1NKXcVpqr8f8KXoew6oGDP1xgt9WpQT0=/https://64.media.tumblr.com/138b31a9ce3659b9f58315e84dde61cd/2689591b2537b9f6-7b/s100x200/1d3618a68ca6432c039d8298b36916d55bba2804.pnj">
 </p>
 
 <p align="center">
