@@ -72,7 +72,7 @@ oftentimes i go nonverbal because i genuinely cannot process creating words.
 
 <p align="center">
 
-  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=000000=FUCKS+GIVEN" alt="fucks given">
+  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=000000" alt="fucks given">
 </p>
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&label=PROFILE+VIEWS)
