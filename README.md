@@ -72,5 +72,5 @@ oftentimes i go nonverbal because i genuinely cannot process creating words.
 
 <p align="center">
 
-  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=000000" alt="Profile views">
+  <img src="https://komarev.com/ghpvc/?username=k9pawzzz&color=000000" alt="𐂯">
 </p>
