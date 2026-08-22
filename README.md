@@ -27,7 +27,7 @@ oftentimes i go nonverbal because i genuinely cannot process creating words.
 ૮₍ ´ ꒳ `₎ა&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;usually with THESE FREAKS!!!
 </p>
 <p align="center">
-⤷&nbsp;&nbsp;ˢᴵᴸⱽᴱᴿ, ᶜᴵᴱᴸ, ᴬᵀᵀᴵᶜᵁˢ, ᴱᶜᴴᴼ, ᴬᴺᴰ ᴱᶜᴼ 
+⤷&nbsp;&nbsp;ˢᴵᴸⱽᴱᴿ, ᴬᴰᴬᴹ, ᴶᴬˣ, ᴱᶜᴴᴼ, ᴬᴺᴰ ᴱᶜᴼ 
 </p>
   
 <br>
